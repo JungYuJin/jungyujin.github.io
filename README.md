@@ -1,2 +1,1 @@
-# jungyujin.github.io
-# jungyujin.github.io
+# 모아모아 블로그 모아
